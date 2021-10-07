@@ -1,5 +1,5 @@
 ---
-title: "(Almost) back in the USSR"
+title: "Almost back in the USSR"
 date: 2021-09-20T19:05:17Z
 draft: false	
 alwaysopen: true
