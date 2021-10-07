@@ -1,7 +1,7 @@
 ---
 title: "A (Mefloquine) Passage to India"
 date: 2011-10-07T19:05:17Z
-draft: true
+draft: false
 alwaysopen: true
 ---
 My passport photo in 1993...
