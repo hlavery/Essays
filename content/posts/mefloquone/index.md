@@ -1,6 +1,6 @@
 ---
 title: "A (Mefloquine) Passage to India"
-date: 2011-10-07T19:05:17Z
+date: 2021-10-07
 draft: false
 alwaysopen: true
 ---
