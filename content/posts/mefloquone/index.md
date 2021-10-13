@@ -35,7 +35,7 @@ On departure day, I gathered up my stuff (except for my work clothes, which were
 
 I went up to the hotel desk, flashed a wad of bills, and asked if there was anyone who might drive me to the airport...as soon as possible, preferably immediately.  Of course, there was a wife's cousin or such who had a "good" car and would be happy to drive me for, say $100 (US) cash.  Deal! 
 
-Some twenty minutes later a young man showed up in a clean but old car and waved me in.  In the meantime, his extensive extended family gathered near the car (I suppose they all worked for the hotel).  The farewells were touching and tearful; there seemed to be a stong possiblity that he wouldn't come back.  Thus waved off in style into the late afternoon heat and dust we headed onto the highway for the five-plus hour drive and, eventually, tommorow's early morning flight home.
+Some twenty minutes later a young man showed up in a clean but old car and waved me in.  In the meantime, his extensive extended family gathered near the car (I suppose they all worked for the hotel).  The farewells were touching and tearful; there seemed to be a stong possiblity that he wouldn't come back.  Thus waved off in style into the late afternoon heat and dust we headed onto the highway for the five-plus hour drive and, eventually, tomorrow's early morning flight home.
 
 After an hour or so, we crossed the state line (the mill is in a "dry" state) and my new friend suggested that we stop at a liquor store to pick up some beer.  This sounded like an excellent idea, and I handed over a supply of rupees sufficient for, perhaps, a case of Kingfisher.  With that reinforcement in hand (both my hand and his) we took off again.
 
