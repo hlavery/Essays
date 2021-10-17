@@ -1,6 +1,6 @@
-baseURL = '../..'
-languageCode = 'en-us'
-title = 'Further Letters and Essays'
+baseURL = "/"
+languageCode = "en-us"
+title = "Further Letters and Essays"
 theme = "paperesque"
 
 [[params.menu]]
